@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/3f996556-84fb-4e86-94ba-35594d365fc5)
+
 Hi, thank you for buying my script, I'm very grateful!
 
 If you need help contact me on discord: okok#3488
